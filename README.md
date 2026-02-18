@@ -4,7 +4,7 @@
 
 
 🔭 Atualmente estou trabalhando em instalações elétrica e energia solar. 🔭
-![foto](https://photos.fife.usercontent.google.com/pw/AP1GczM4SKhR8c69UIliwf-V1BP6nVvx6i5hL9B8ii3ucDa_iVP0vp2OvzPYYg=w689-h919-s-no-gm?authuser=0)
+![foto](https://photos.google.com/photo/AF1QipPs4oA1hN9zrcZ3sF72GyXUxf-EOZavy5ocCuVV)
 
 🌱 Atualmente estou aprendendo , Programação , Desenvolvimento web , Full Stack.
 ![foto](https://www.criandobits.com.br/wp-content/uploads/2022/11/programador-fullstack.jpg)
