@@ -1,14 +1,17 @@
 # DEILSON MENDES👋
 
-![528000030-64f4b3fa-3091-4835-a722-b4749c93b964](https://github.com/user-attachments/assets/21e34656-dbbd-4ea6-b642-e86fac6fc54f)
+![foto](https://github.com/user-attachments/assets/21e34656-dbbd-4ea6-b642-e86fac6fc54f)
 
-<!
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
->
+
+🔭 Atualmente estou trabalhando em instalações elétrica e energia solar. 🔭
+![foto](https://photos.fife.usercontent.google.com/pw/AP1GczM4SKhR8c69UIliwf-V1BP6nVvx6i5hL9B8ii3ucDa_iVP0vp2OvzPYYg=w689-h919-s-no-gm?authuser=0)
+
+🌱 Atualmente estou aprendendo , Programação , Desenvolvimento web , Full Stack.
+
+👯 Estou procurando colaborações para um estágio .
+
+💬 Pergunte-me sobre 💬
+
+📫 Como me contatar 📫
+
+⚡ Curiosidade ⚡
